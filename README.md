@@ -68,7 +68,7 @@ Brookhaven, catalog Avatar, doors etc.
 and also the anime's I like? 
 Skip and loafer, demon Slayer, the apothecary diaries, dangerous convenience sto- (I know it's not anime 😔) your name(movie), kiss him, not me!(Ig idk ts ones name fully), Ouran high school host club, kakegurui, my little monster, fruit basket, lemon soda, romantic killer(shes so me) etc etc etc.. :P
 
-
+<img width="736" height="414" alt="a3c621ef56ffe64bdf100e3c7516ecd8" src="https://github.com/user-attachments/assets/99845a46-887e-4951-8b7f-366b8601a218" />
 
 I think that's all for now because I honestly can't think of anything else about myself. If anything comes to mind, I'll write it down >;D
 Also I wanna say that I'm a bit nsfw artist, (not too damn +18 arts) but still- let me know if u're uncomfortable with that! I won't bite fr- and I love doom. 😈
