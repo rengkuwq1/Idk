@@ -61,7 +61,9 @@ Dragon adventures, Tower of hell, laundry simulator, evade, mm2, infected smile(
 Brookhaven, catalog Avatar, doors etc. 
 (I can't write them all because I forgot their names-)
 
-
+(⁠◠⁠‿⁠・⁠)⁠—⁠☆ - - - ~•
+<img width="736" height="414" alt="327a7bd957e729144790bf3d56d3170a" src="https://github.com/user-attachments/assets/b6f6ec9a-892c-4e9e-a4d7-5db4bc73ba74" />
+- - - - - - - - 
 
 and also the anime's I like? 
 Skip and loafer, demon Slayer, the apothecary diaries, dangerous convenience sto- (I know it's not anime 😔) your name(movie), kiss him, not me!(Ig idk ts ones name fully), Ouran high school host club, kakegurui, my little monster, fruit basket, lemon soda, romantic killer(shes so me) etc etc etc.. :P
