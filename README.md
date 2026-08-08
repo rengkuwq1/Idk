@@ -75,7 +75,8 @@ Also I wanna say that I'm a bit nsfw artist, (not too damn +18 arts) but still- 
 
 
 
-
+<img width="498" height="281" alt="2e0c2b596df0103fed3b8b4dec703e81" src="https://github.com/user-attachments/assets/93068414-f0b8-46c6-92a3-1de4f98885b3" />
+...
 
 
 
