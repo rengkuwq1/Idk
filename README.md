@@ -2,7 +2,7 @@
 
 About me I guess.? 
 ⋆ ˚｡⋆୨୧˚　˚୨୧⋆｡˚ ⋆
-ENG/TR!¡
+ENG/TR!¡ INTP
 You can call me K.len, Silly or anything u want:33 pronounce I use; he/him/she/her anything u want for ts too I don't mind :]
 from Türkiye (Turkey) And still trying to learn English
 I have a bad grammar so excuse me if my sentences sounds 
@@ -51,7 +51,33 @@ dislikes/hate; Arguing, dealing with childish people, ignorant people, gun games
 <img width="735" height="465" alt="Image" src="https://github.com/user-attachments/assets/f0ee9224-1ae8-466f-8576-192e2cf45276" />
 ... 
 
-wip (⁠⁠´⁠ω⁠｀⁠⁠) with ma newbrand phone😈😈
+so- euh. Honestly, I don't have much to write about myself- imma boring person I know I know 😔✌️
+
+
+
+So I also wanna write the games I play in 
+Roblox idk why not;
+Dragon adventures, Tower of hell, laundry simulator, evade, mm2, infected smile(ig?) 
+Brookhaven, catalog Avatar, doors etc. 
+(I can't write them all because I forgot their names-)
+
+
+
+and also the anime's I like? 
+Skip and loafer, demon Slayer, the apothecary diaries, dangerous convenience sto- (I know it's not anime 😔) your name(movie), kiss him, not me!(Ig idk ts ones name fully), Ouran high school host club, kakegurui, my little monster, fruit basket, lemon soda, romantic killer(shes so me) etc etc etc.. :P
+
+
+
+I think that's all for now because I honestly can't think of anything else about myself. If anything comes to mind, I'll write it down >;D
+Also I wanna say that I'm a bit nsfw artist, (not too damn +18 arts) but still- let me know if u're uncomfortable with that! I won't bite fr- and I love doom. 😈
+
+
+
+
+
+
+
+
 
 
 
