@@ -1,4 +1,6 @@
 <img width="736" height="414" alt="Image" src="https://github.com/user-attachments/assets/affc33e0-6405-4abe-88e8-da32fd139b7d" />
+I love Ivan cuz he's so me
+<img width="736" height="414" alt="a3c621ef56ffe64bdf100e3c7516ecd8" src="https://github.com/user-attachments/assets/511e3f3c-92b9-493a-978f-9fb3092e3107" />
 
 About me I guess.? 
 ⋆ ˚｡⋆୨୧˚　˚୨୧⋆｡˚ ⋆
