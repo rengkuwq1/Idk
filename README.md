@@ -15,7 +15,8 @@ As for myself: I am a musician, artist, and author/novelist(fanfic) in short.
 <img width="688" height="688" alt="Image" src="https://github.com/user-attachments/assets/47ae4751-a94f-4117-ac45-7b488f81a685" />
 
 Mutlifandom-
-FNF, alien stage, roblox, manhwas, The freak circus, Vocaloid, Tadc, k-pop, K-drama, yaoi, OTL(😋) etc.
+FNF, alien stage, roblox, manhwas, The freak circus,Tadc, k-pop, K-drama, yaoi, OTL(😋), vocaloid(not really into it), etc etc.
+(I don't remember all of em so :<) 
 
 
 DNI's!¡
